@@ -1,2 +1,2 @@
 # rage
-rage against the machine bad ass uhh fan page
+rage against the machine fan page
